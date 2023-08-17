@@ -16,3 +16,6 @@ Hi, I am Damilola, a second-year Master's student in Biology
 Hello, my name is Shimaa, and I like music.
 
 Hello, I am Nathaniel and I am a first-year Masters student in Biology. When I am able to, I play upright bass or piano.
+
+
+this in Andre. join us wednesdays for Social Runs at the Socorro Plaza. Leaves promptly at 5:30 p.m.
